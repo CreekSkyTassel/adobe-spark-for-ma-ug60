@@ -1,4 +1,4 @@
-
+Get the ultimate Adobe Spark for macOS integration with advanced Adobe Spark for macOS Integration | color-correction + audio-sync. Featuring color-correction and audio-sync, it's
 
 
 
